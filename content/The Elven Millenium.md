@@ -1,0 +1,1 @@
+**The Elven Millenium** was a period in which [[Elves]] were the dominant species in [[Ena]] from 2057 [[Before Discovery|BD]] to 1055 BD.

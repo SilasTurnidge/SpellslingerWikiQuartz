@@ -1,0 +1,1 @@
+**The Elven High Command** is the leadership of the [[Elves]]. It is located on the northwestern coast of [[Alsunn]].

@@ -1,0 +1,1 @@
+**Elves** are a group of [[Hominid|hominids]] native to [[Ena]].

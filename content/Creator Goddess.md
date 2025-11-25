@@ -1,0 +1,1 @@
+The **Creator Goddess**, also known as **A'pan** or **Winsa**, is a [[God]]. She has authority over the domains of Light and Magic.

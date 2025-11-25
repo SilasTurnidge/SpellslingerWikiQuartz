@@ -1,0 +1,1 @@
+**Sunstone** is a material found throughout [[Tersopan]] created from the pure divine energy of the [[Creator Goddess]]. It is especially common in [[Alsunn]].

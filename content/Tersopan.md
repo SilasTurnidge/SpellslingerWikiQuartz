@@ -1,0 +1,1 @@
+**Tersopan** is a planet located within the [[Ethereal Plane]] with its own unique cosmology, religion, and history. It was created by tears of the [[Creator Goddess]] that crystalized into [[The Prime Sunstones]].

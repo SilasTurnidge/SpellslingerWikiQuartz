@@ -1,0 +1,1 @@
+**Leil** is an [[Elves|Elven]] city located on the northwestern coast of [[Alsunn]]. It serves as the entry-point for the [[Elven High Command]].

@@ -1,0 +1,1 @@
+**Elwein** is an [[Elves|elven]] city on the east coast of [[Ena]]. It is the former capital of the [[Elven Dynasty]].

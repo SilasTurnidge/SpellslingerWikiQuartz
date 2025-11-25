@@ -1,0 +1,1 @@
+**Qarsath** is an [[Elves|Elven]] city located on the west coast of [[Alsunn]] in [[The Western Territory]]. It is a port city that specializes in shipping and trade. Before the war, a rumor circulated around some [[Humans]] that Qarsath translated to "merchant heaven." This is false, Qarsath just means "city of paths."

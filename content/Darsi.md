@@ -1,0 +1,1 @@
+**Darsi** is a city located on the northeast coast of [[Alsunn]]. It is the only majority-[[Dwarves|Dwarf]] city on the new continent.

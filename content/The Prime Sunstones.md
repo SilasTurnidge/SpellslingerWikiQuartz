@@ -1,0 +1,1 @@
+**The Prime Sunstones** were a group of large, potent [[Sunstone|Sunstones]] created from the [[Creator Goddess]]'s tears. These Sunstones split into the many Sunstones that are scattered throughout [[Tersopan]].

@@ -1,0 +1,1 @@
+**S'elwein** is a city located on the northwest coast of [[Alsunn]]. It is the headquarters of the [[Elven High Command]].
