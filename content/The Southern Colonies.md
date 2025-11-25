@@ -1,4 +1,4 @@
-**The Southern Colonies** are a collective of [[Elves|Elven]] colonies in the south-west of [[Alsunn]].
+**The Southern Colonies** are a collective of [[Elves|Elven]] colonies in the south-west of [[Alsunn]]. The area's [[Peace Marshal]] is [[Dagon]].
 
 # Law
 The Southern Colonies follow [[Common Law|Elven Common Law]] with the following exception:

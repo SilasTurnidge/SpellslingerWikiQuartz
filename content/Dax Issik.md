@@ -1,0 +1,1 @@
+**Dax Issik** is the [[Peace Marshal]] for [[The Curling Mountains]]. He is the highest-ranking [[Goliaths|Goliath]] within the [[Elves|Elven]] bureaucracy. He has a reputation for never letting prey go once he catches their scent.

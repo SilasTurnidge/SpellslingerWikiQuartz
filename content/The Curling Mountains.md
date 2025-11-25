@@ -1,1 +1,1 @@
-**The Curling Mountains** are an [[Elves|Elven]] territory on north-west coast of [[Alsunn]].
+**The Curling Mountains** are an [[Elves|Elven]] territory on north-west coast of [[Alsunn]]. The area's [[Peace Marshal]] is [[Dax Issik]].

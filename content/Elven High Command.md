@@ -1,1 +1,1 @@
-**The Elven High Command** is the leadership of the [[Elves]]. It is located on the northwestern coast of [[Alsunn]].
+**The Elven High Command** is the leadership of the [[Elves]]. It is located on the northwestern coast of [[Alsunn]]. The area's [[Peace Marshal]] is [[Alon Widae]].
