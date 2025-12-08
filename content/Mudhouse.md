@@ -1,0 +1,1 @@
+A **Mudhouse** is a traditional [[Orcs|Orcish]] building that embeds its foundation in the marshland to let it rise and fall with tides, tsunamis, and earthquakes.

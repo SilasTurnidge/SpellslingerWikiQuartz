@@ -1,0 +1,1 @@
+**Half-Elf** is the term used for someone of partial [[Elves|Elven]] descent. It is most commonly used for Elven-[[Humans|Human]] offspring.
