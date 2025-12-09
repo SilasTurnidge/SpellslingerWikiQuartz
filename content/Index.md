@@ -23,5 +23,11 @@ All links in this section (either directly or linked within the articles) are pu
 # Player-Specific Knowledge
 Coming soon :)
 
+Mr. Hoff:
+- [[Articles of the Republic]]
+- [[Frontier Statutes of the New Elven Republic]]
+- [[Wartime Statutes of the New Elven Republic]]
+- [[Criminal Statutes of the New Elven Republic]]
+
 # Party Knowledge
 Coming soon :)
